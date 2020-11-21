@@ -7,7 +7,7 @@
  Actually, you can see list of my AbIlItIeS hear O...O
 
 ```markdown
-[itsme](Mage.png)
+[itsme](https://github.com/Adzumari/BlackMagick.com-/blob/main/Mage.png)
 ## I CAN DO
 
 1. Discordant _whisper_
