@@ -7,7 +7,7 @@
  Actually, you can see list of my AbIlItIeS hear O...O
 
 ```markdown
-mage.png
+[itsme](mage.png)
 ## I CAN DO
 
 1. Discordant _whisper_
@@ -23,7 +23,7 @@ mage.png
 11. And other **POWERFUL** *SPELLS* 
 
  (also you can visit my pinterest page)
-https://www.pinterest.com/SannKitch/
+[push me](https://www.pinterest.com/SannKitch/)
 ```
 
  Other part of page will be SOON!
