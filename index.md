@@ -7,7 +7,7 @@
  Actually, you can see list of my AbIlItIeS hear O...O
 
 ```markdown
-[itsme](mage.png)
+[itsme](Mage.png)
 ## I CAN DO
 
 1. Discordant _whisper_
