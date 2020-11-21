@@ -1,17 +1,30 @@
-## BOX with ADZUMARI - the GREATEST OF ALL PROGRAMMER 
+## You are on the page of Aust Faust Autist Adzuamri Fon Garf'unkil de Muar Nroi Salvador 
 
-echo HELLO!  
+ The greatest sorcerer of the Great Elder - That, it, i mean... ugh...  
 
-### HELLO
-
-HELLO!
+### If YOU need professional WiTcH, send mail on ravenindeep112@elfmail.com
+ 
+ Actually, you can see list of my AbIlItIeS hear O...O
 
 ```markdown
-# 
-## 
-### 
-1. Hello1
-2. Hello2
-**Hello** and _Hello_ and `HELLO` text
-[Link](www.hello.com) and ![Image](hello.jpg)
+[mage.png]
+## I CAN DO
+
+1. Discordant _whisper_
+2. Tasha's eerie laugh
+3. Awakened mind
+4. **Witchbolt  
+5. Hadars hands
+6. Find a `FaMiLiAr`
+7. _Detection_ of **diseases** and `poisons`
+8. Cloud of KNIFES 
+9. Detection of _thinks_
+10. `IlLuSiOn`
+11. And other **POWERFUL** *SPELLS* 
+
+ (also you can visit my pinterest page)
+[https://www.pinterest.com/SannKitch/]
 ```
+
+ Other part of page will be SOON!
+ Be back! 
