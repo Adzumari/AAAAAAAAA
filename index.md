@@ -23,7 +23,7 @@
 11. And other **POWERFUL** *SPELLS* 
 
  (also you can visit my pinterest page)
-[push me](https://www.pinterest.com/SannKitch/)
+[push me](https://www.pinterest.com/SannKitch/)(that shit dont work too)
 ```
 
  Other part of page will be SOON!
